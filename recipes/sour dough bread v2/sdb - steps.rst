@@ -2,6 +2,10 @@ Instructions
 
 To make the dough: In a large bowl or the bowl of a stand mixer, stir together the starter, water, and 3 cups (360g) of the flour using the flat beater attachment. **Beat vigorously for 1 minute.** 
 
+ * 1 cup (227g) ripe (fed) sourdough starter
+ * 1 1/2 cups (340g) water, lukewarm
+ * 3 cups (360g) King Arthur Unbleached All-Purpose Flou
+
 **Cover and let rest at room temperature for 4 hours.**
 
 **Refrigerate overnight, or for about 12 hours.** The dough will have expanded in size and become more relaxed after its overnight rest.    
@@ -33,6 +37,6 @@ Try one slash down the length of the loaf, two diagonal slashes, or another symm
 Bake the bâtards for 25 to 30 minutes, until they’re a very deep golden brown. Remove them from the oven and cool on a rack. 
 
 **dutch oven baking:**
- - pre-heat dutch oven to 450F, bake covered 20 mins, uncover, reduce temp to 400F, and bake 10 mins, turn, bake 10 mins, check for desired color.
+ - pre-heat dutch oven to 450F, bake covered ~~20~~ 30 mins, uncover, reduce temp to 400F, and bake 10 mins, turn, bake 10 mins, checking for desired color.
 
 Store bâtards, loosely wrapped, for several days at room temperature; freeze for longer storage. 
