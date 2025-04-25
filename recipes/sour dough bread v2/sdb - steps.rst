@@ -4,13 +4,13 @@ To make the dough: In a large bowl or the bowl of a stand mixer, stir together t
 
  * 1 cup (227g) ripe (fed) sourdough starter
  * 1 1/2 cups (340g) water, lukewarm
- * 3 cups (360g) King Arthur Unbleached All-Purpose Flou
+ * 3 cups (360g) King Arthur Unbleached All-Purpose Flouz
 
 **Cover and let rest at room temperature for 4 hours.**
 
 **Refrigerate overnight, or for about 12 hours.** The dough will have expanded in size and become more relaxed after its overnight rest.    
 
-Add the remaining 2 cups (240g) flour and the salt. Stir to thoroughly combine, then knead (by hand, or with a stand mixer equipped with the dough hook) to form a smooth dough. 
+Add the remaining 2 cups (240g) flour and the 2 1/2 teaspoons table salt. Stir to thoroughly combine, then knead (by hand, or with a stand mixer equipped with the dough hook) to form a smooth dough. 
 
 Allow the dough to rise in a covered bowl until it's light and airy, with visible gas bubbles. Depending on the vigor of your starter and the temperature of your kitchen, this may take **up to 5 hours** (or even longer). For best results, gently **deflate the dough once an hour** by turning it out onto a lightly floured or lightly greased work surface; stretching and folding the edges into the center; turning it over, then returning it to the bowl. Adding these folds will help strengthen the dough’s structure, and allow you to feel how it’s progressing over time. 
 
@@ -29,6 +29,7 @@ Turn the dough over so the seam is facing down. With cupped hands, gently roll t
 **Cover and let rise until very puffy, about 2 to 4 hours** (or longer; give them sufficient time to become noticeably puffy). Don't worry if the loaves spread more than they rise; they'll pick up once they hit the oven's heat. Toward the end of the rising time, **preheat the oven to 425°F.** 
 
 **Spray the bâtards with lukewarm water;**
+
 this will help them rise in the oven by keeping their crust soft and pliable initially. For an extra-crusty crust add steam to your oven: see details in “tips,” below. 
 
 **Slash the bâtards.**
