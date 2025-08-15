@@ -40,4 +40,7 @@ Bake the bâtards for 25 to 30 minutes, until they’re a very deep golden brown
 **dutch oven baking:**
  - pre-heat dutch oven to 450F, bake covered ~~20~~ 30 mins, uncover, reduce temp to 400F, and bake 10 mins, turn, bake 10 mins, checking for desired color.
 
+**no preheat baking**
+ - do not preheat. Put cold dough into cold DO start oven with DO inside. I do 450° for 50 minutes remove lid lower to 400° for approximately 10 minutes till internal temperature is 208°
+ 
 Store bâtards, loosely wrapped, for several days at room temperature; freeze for longer storage. 
