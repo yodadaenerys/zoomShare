@@ -5,5 +5,5 @@ knead well for 10 minutes by hand (5 minutes with mixer), until silky and elasti
 let rise, covered, until doubled.
 can use 200 g dough per pizza.
 let sit for 30 minutes so gluten can relax.
-avoid using a rolling pin.
+avoid using a rolling pin. stretch and shape by hand.
 
