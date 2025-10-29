@@ -12,7 +12,7 @@ To make the dough: In a large bowl or the bowl of a stand mixer, stir together t
 
 Add the remaining 2 cups (240g) flour and the 2 1/2 teaspoons table salt. Stir to thoroughly combine, then knead (by hand, or with a stand mixer equipped with the dough hook) to form a smooth dough. 
 
-Allow the dough to rise in a covered bowl until it's light and airy, with visible gas bubbles. Depending on the vigor of your starter and the temperature of your kitchen, this may take **up to 5 hours** (or even longer). For best results, gently **deflate the dough once an hour** by turning it out onto a lightly floured or lightly greased work surface; stretching and folding the edges into the center; turning it over, then returning it to the bowl. Adding these folds will help strengthen the dough’s structure, and allow you to feel how it’s progressing over time. 
+Allow the dough to rise in a covered bowl unt il it's light and airy, with visible gas bubbles. Depending on the vigor of your starter and the temperature of your kitchen, this may take **up to 5 hours** (or even longer). For best results, gently **deflate the dough once an hour** by turning it out onto a lightly floured or lightly greased work surface; stretching and folding the edges into the center; turning it over, then returning it to the bowl. Adding these folds will help strengthen the dough’s structure, and allow you to feel how it’s progressing over time. 
 
 To preshape: Transfer the dough to lightly floured or lightly greased work surface. Gently divide it in half.
 

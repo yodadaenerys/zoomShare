@@ -1,0 +1,1 @@
+some proportions MODIFIED FROM https://www.rickbayless.com/recipe/habanero-hot-sauce-2/
