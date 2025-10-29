@@ -43,4 +43,5 @@ Bake the bâtards for 25 to 30 minutes, until they’re a very deep golden brown
 **no preheat baking**
  - do not preheat. Put cold dough into cold DO start oven with DO inside. I do 450° for 50 minutes remove lid lower to 400° for approximately 10 minutes till internal temperature is 208°
  
+ 
 Store bâtards, loosely wrapped, for several days at room temperature; freeze for longer storage. 
