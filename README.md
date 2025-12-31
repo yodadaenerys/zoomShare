@@ -10,3 +10,4 @@ add - git add .
 cmt - git commit
 pull - git pull
 push - git push
+repo - cd "repo diretory"
