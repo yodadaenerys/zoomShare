@@ -14,3 +14,5 @@ repo - cd "repo diretory"
 
 this update 20may2026 doug mac mini
 this update on macbook pro 20may2026
+this update from mac neo 20may2026
+
